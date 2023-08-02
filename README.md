@@ -1,5 +1,5 @@
 - Hi, I’m @F1ren1x
-- I’m the owner of Czech Minecraft server SnoitCraft, that I’m currently working on
+- I’m the owner of Czech Minecraft server called SnoitCraft, that I’m currently working on
 - ✉ You can reach me primarily thru Discord - f1ren1x 
 
 <!---
